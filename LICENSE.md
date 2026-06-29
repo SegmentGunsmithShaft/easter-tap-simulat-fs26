@@ -1,4 +1,4 @@
-
+new Script for easter tap simulator offers the most advanced easter tap simulator Script, with infinite resources and speed. Perfect for dominating
 
 
 
